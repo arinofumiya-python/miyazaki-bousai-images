@@ -1,0 +1,1 @@
+# miyazaki-bousai-images
